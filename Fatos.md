@@ -1,5 +1,5 @@
 #Entrega: Resolvendo Conflitos.
 
-## Segundo fato sobre Guilherme Colhado
+## Terceiro fato sobre Guilherme Colhado
 
-Eu gosto muito de jogar jogos de aventura;
+Eu faço amizade com facilidade, mas a pessoa tem que chamar;
